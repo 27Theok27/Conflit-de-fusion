@@ -1,1 +1,1 @@
-"Les vainqueurs l'ecrivent, les vaincus racontent l'histoire"
+"Less vainqueurs l'ecrivent, les vaincus racontent l'histoire"
